@@ -8,9 +8,8 @@
 <img width="1342" height="833" alt="image" src="https://github.com/user-attachments/assets/e0646725-9cb7-4a8e-8990-da02d492814b" />
 <img width="63" height="20" alt="image" src="https://github.com/user-attachments/assets/40283571-5ce5-41af-ab87-b269c52dbca8" />
 ## [download the map here!!! - Blancks SF FFA](Blancks%20SF%20FFA.rbxl)
+F.B 
 
-
-F.B. <img width="68" height="20" alt="image" src="https://github.com/user-attachments/assets/ecd5487d-83e5-426e-89b6-cd9f138c5853" />
 ## If you find something broken, let me know!! 
 
 
